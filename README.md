@@ -1,1 +1,6 @@
-# exercise-one
+# Exercise-one
+
+
+# Thulasi Sushma
+# Purple
+# Sanskrit
